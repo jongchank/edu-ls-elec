@@ -1,1 +1,1 @@
-# Education for LS Electronics 
+# Education for LS Electric
